@@ -1,3 +1,8 @@
-# Hello-World
-Hi, I am Yuvraj Singh Kumpavat. Friends call me Yuvi or maybe sometimes UV, since I love Sun. Huge fan of Wham! band and my favorite genre of music is 80s pop and soft rock. I love cars a lot.
-If someone asks my what's your favorite brand for cars, I would say Subaru. They can literally tread anywhere. I got my own blog channel where I post a lot of stuffs about cars.
+Hey Friends,
+Welcome to my Github Repo. As taking the absolute privilege of being an absolute wasteman, I started making games. 
+I love video games.
+Gosh, I love video games.
+I love making them and playing them. 
+Subscribe to my channel: https://www.youtube.com/channel/UCXuf-3m2p2l_u-m9ZDRRggw
+
+All games made by me are here: https://wast3man.itch.io/
